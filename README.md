@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @MarkoJovetic
+- 👀 I’m interested in Math, Computer science, IT, Tech,...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on interesting procject, where could use and expand my knowlage 
+- 📫 How to reach me ... send me a mail on marko.jovetic.94@gmail.com and I'll answer you asap
+
